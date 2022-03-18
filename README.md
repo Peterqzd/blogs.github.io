@@ -14,12 +14,12 @@
 
 ## 商业分析（business model）
 ### research report
-### interesting business modern in china
+### interesting business modern in chin
 
 ## 产品经理入门（product manager）
 
 ## 其他
-### 知乎
+### 知乎https://www.zhihu.com/people/QinZhengDongPeter 
 ### 人人都是产品经理
 ### 微博
 ### 个人公众号
