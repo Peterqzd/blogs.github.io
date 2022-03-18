@@ -20,6 +20,6 @@
 
 ## 其他
 ### 知乎ID: [秦政Peter](https://www.zhihu.com/people/QinZhengDongPeter)
-### 人人都是产品经理： [秦政Peter](http://www.woshipm.com/u/1405913)
+### 人人都是产品经理：[秦政Peter](http://www.woshipm.com/u/1405913)
 ### 微博
 ### 个人公众号
