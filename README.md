@@ -19,7 +19,7 @@
 ## 产品经理入门（product manager）
 
 ## 其他
-### 知乎https://www.zhihu.com/people/QinZhengDongPeter 
+### 知乎[https://www.zhihu.com/people/QinZhengDongPeter (秦政Peter)](url)
 ### 人人都是产品经理
 ### 微博
 ### 个人公众号
